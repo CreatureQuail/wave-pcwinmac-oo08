@@ -1,4 +1,4 @@
-# 
+# Open Source Wave tools for Mac OS | Elite Wave tools for PC Windows. Featuring federal tax calculation and expense tracking — optimized for maximum performance on every platform.
 
 
 
